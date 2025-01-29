@@ -6,4 +6,5 @@ Entre o orgânico e o artificial, a peça convida o público a refletir sobre
 <br>
 <br>
 <br>
+  
 ![de_gelo_sq_web](https://github.com/user-attachments/assets/ad81daf3-1332-45d8-b166-4662b4f4f638)
